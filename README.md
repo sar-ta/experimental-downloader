@@ -1,5 +1,5 @@
 # 📥 Download Links
-Generated on: Tue May 12 20:36:11 UTC 2026
+Generated on: Tue May 12 20:40:06 UTC 2026
 
 - [Download Alice_Asylum_[3pRBAXyc328].mp4.zip](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/Alice_Asylum_%5B3pRBAXyc328%5D.mp4.zip)
 - [Download Alice_Asylum：_The_Slumber_Environment_art_fan_made_(HD)_[fySNIZqGWG4].mp4.zip](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/Alice_Asylum%EF%BC%9A_The_Slumber_Environment_art_fan_made_%28HD%29_%5BfySNIZqGWG4%5D.mp4.zip)
@@ -13,6 +13,9 @@ Generated on: Tue May 12 20:36:11 UTC 2026
 - [Download Alice：_Madness_Returns_TikTok_Edits_Compilation_｜｜_Timestamps_&_Credits_in_Desc_｜｜_Flashes⧸Flickers_[hchspJq8d_I].mp4.z02](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/Alice%EF%BC%9A_Madness_Returns_TikTok_Edits_Compilation_%EF%BD%9C%EF%BD%9C_Timestamps_%26_Credits_in_Desc_%EF%BD%9C%EF%BD%9C_Flashes%E2%A7%B8Flickers_%5BhchspJq8d_I%5D.mp4.z02)
 - [Download Alice：_Madness_Returns_TikTok_Edits_Compilation_｜｜_Timestamps_&_Credits_in_Desc_｜｜_Flashes⧸Flickers_[hchspJq8d_I].mp4.z03](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/Alice%EF%BC%9A_Madness_Returns_TikTok_Edits_Compilation_%EF%BD%9C%EF%BD%9C_Timestamps_%26_Credits_in_Desc_%EF%BD%9C%EF%BD%9C_Flashes%E2%A7%B8Flickers_%5BhchspJq8d_I%5D.mp4.z03)
 - [Download Alice：_Madness_Returns_TikTok_Edits_Compilation_｜｜_Timestamps_&_Credits_in_Desc_｜｜_Flashes⧸Flickers_[hchspJq8d_I].mp4.zip](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/Alice%EF%BC%9A_Madness_Returns_TikTok_Edits_Compilation_%EF%BD%9C%EF%BD%9C_Timestamps_%26_Credits_in_Desc_%EF%BD%9C%EF%BD%9C_Flashes%E2%A7%B8Flickers_%5BhchspJq8d_I%5D.mp4.zip)
+- [Download BEST_＂ARCANE＂_TIKTOK_EDITS_COMPILATION_🔮_｜_Arcane_Edits_Part_#14_[MSTcEFtGYcA].mp4.z01](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/BEST_%EF%BC%82ARCANE%EF%BC%82_TIKTOK_EDITS_COMPILATION_%F0%9F%94%AE_%EF%BD%9C_Arcane_Edits_Part_%2314_%5BMSTcEFtGYcA%5D.mp4.z01)
+- [Download BEST_＂ARCANE＂_TIKTOK_EDITS_COMPILATION_🔮_｜_Arcane_Edits_Part_#14_[MSTcEFtGYcA].mp4.z02](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/BEST_%EF%BC%82ARCANE%EF%BC%82_TIKTOK_EDITS_COMPILATION_%F0%9F%94%AE_%EF%BD%9C_Arcane_Edits_Part_%2314_%5BMSTcEFtGYcA%5D.mp4.z02)
+- [Download BEST_＂ARCANE＂_TIKTOK_EDITS_COMPILATION_🔮_｜_Arcane_Edits_Part_#14_[MSTcEFtGYcA].mp4.zip](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/BEST_%EF%BC%82ARCANE%EF%BC%82_TIKTOK_EDITS_COMPILATION_%F0%9F%94%AE_%EF%BD%9C_Arcane_Edits_Part_%2314_%5BMSTcEFtGYcA%5D.mp4.zip)
 - [Download LIFE_IS_STRANGE_(TikTok_Edits)_[Y3a6dzLpGQc].mp4.z01](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/LIFE_IS_STRANGE_%28TikTok_Edits%29_%5BY3a6dzLpGQc%5D.mp4.z01)
 - [Download LIFE_IS_STRANGE_(TikTok_Edits)_[Y3a6dzLpGQc].mp4.zip](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/LIFE_IS_STRANGE_%28TikTok_Edits%29_%5BY3a6dzLpGQc%5D.mp4.zip)
 - [Download Love_Island_AI_Slop_Has_Taken_Over_TikTok_[2OMq3-LmxeQ].mp4.z01](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/Love_Island_AI_Slop_Has_Taken_Over_TikTok_%5B2OMq3-LmxeQ%5D.mp4.z01)
