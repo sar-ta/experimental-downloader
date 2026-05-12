@@ -1,6 +1,8 @@
 # 📥 Download Links
-Generated on: Mon May 11 21:59:02 UTC 2026
+Generated on: Tue May 12 20:12:27 UTC 2026
 
+- [Download LIFE_IS_STRANGE_(TikTok_Edits)_[Y3a6dzLpGQc].mp4.z01](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/LIFE_IS_STRANGE_%28TikTok_Edits%29_%5BY3a6dzLpGQc%5D.mp4.z01)
+- [Download LIFE_IS_STRANGE_(TikTok_Edits)_[Y3a6dzLpGQc].mp4.zip](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/LIFE_IS_STRANGE_%28TikTok_Edits%29_%5BY3a6dzLpGQc%5D.mp4.zip)
 - [Download Love_Island_AI_Slop_Has_Taken_Over_TikTok_[2OMq3-LmxeQ].mp4.z01](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/Love_Island_AI_Slop_Has_Taken_Over_TikTok_%5B2OMq3-LmxeQ%5D.mp4.z01)
 - [Download Love_Island_AI_Slop_Has_Taken_Over_TikTok_[2OMq3-LmxeQ].mp4.z02](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/Love_Island_AI_Slop_Has_Taken_Over_TikTok_%5B2OMq3-LmxeQ%5D.mp4.z02)
 - [Download Love_Island_AI_Slop_Has_Taken_Over_TikTok_[2OMq3-LmxeQ].mp4.z03](https://github.com/sar-ta/experimental-downloader/raw/videos/videos/Love_Island_AI_Slop_Has_Taken_Over_TikTok_%5B2OMq3-LmxeQ%5D.mp4.z03)
